@@ -2,7 +2,7 @@
 - 👀 Discord İle İlgileniyorum
 - 🌱 Kodlama - Yazılım Öğrenmek İstiyorum
 - 💞️ İşbirliğine İhtiyaç Duymuyorum
-- 📫  Discord Üzerinden Ulaşabiilirsin Wubbylol#0001
+- 📫  Discord Üzerinden Ulaşabiilirsin Wubbylol#9101
 - Sonra Görüşmek Üzere !
 <!---
 
